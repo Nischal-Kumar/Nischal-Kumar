@@ -14,7 +14,7 @@
 
 - 📫 How to reach me **rajnischal999@gmail.com**
 
-- ⚡ Fun fact **Declare{variables} NOT WAR; :)**
+- ⚡ Fun fact : **Declare{variables} NOT WAR; :)**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
